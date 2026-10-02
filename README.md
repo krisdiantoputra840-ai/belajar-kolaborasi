@@ -8,3 +8,4 @@
 <br>
 ![Teks Alternatif]()
 
+ringgas di ghossting karen kontol
